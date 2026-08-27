@@ -1,1 +1,1 @@
-# Platforma-cyfrowa-do-zawod-w-przysz-o-ci-elektroniczna-platforma
+# Platforma-cyfrowa-do-zawod-w-przysz-o-ci-elektroniczna-platforma do systemu.
